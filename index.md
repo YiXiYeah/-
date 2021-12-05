@@ -1,6 +1,6 @@
 
 
-联系邮箱: likeyixi#gmail.com
+联系邮箱: zhijianyeah#gmail.com
 
 隐私协议
 
